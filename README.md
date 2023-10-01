@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Phatsieeg 
+- 👋 Hi, I’m @Phatsiee
 - 👀 I’m interested in... reading music psychology 
 - 🌱 I’m currently learning ...how to be a better writer 
 - 💞️ I’m looking to collaborate... on umuzi learnerships and learning more 
